@@ -1,1 +1,1 @@
-# I have checked the blog for many times.
+I have checked the blog for many times.
